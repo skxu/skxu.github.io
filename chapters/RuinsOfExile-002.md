@@ -60,4 +60,4 @@ Instinct kicking in, Sam jumped over his desk, leaped out of the broken window, 
 
 ---
   
-[< Chapter 1](/chapters/RuinsOfExile-001)
+[< Chapter 1](/chapters/RuinsOfExile-001) | [Chapter 3 >](/chapters/RuinsOfExile-003)
