@@ -72,4 +72,4 @@ _Nani?_
 
 ---  
 
-[Chapter 2 >](/chapters/RuinsOfExile-002.md)
+[Chapter 2 >](/chapters/RuinsOfExile-002)
