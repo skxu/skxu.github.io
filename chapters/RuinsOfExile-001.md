@@ -71,3 +71,5 @@ Sam sighed, logged into his character, and promptly died within 2 seconds.
 _Nani?_
 
 ---  
+
+[Chapter 2 >](/chapters/RuinsOfExile-002.md)
