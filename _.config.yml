@@ -6,3 +6,6 @@ relative_links:
 include:
   - README.md
   - chapters
+title: Ruins Of Exile
+description: A Light Novel
+theme: false
