@@ -32,7 +32,7 @@ There would never be a better example of a shit eating grin than what was on Sam
   
 "Yeah, why?", replied Chris with a puzzled look.   
   
-"As long as I can bypass the school firewall, I can remote control my PC at home, which means we can play this expansion right away.  
+"As long as I can bypass the school firewall, I can remote control my PC at home, which means we can play this expansion right away."  
   
 Realization quickly dawned on Chris's face. "Let's do it."  
   

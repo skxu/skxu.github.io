@@ -1,3 +1,3 @@
 # ruins-of-exile
 
-Light Novel
+* [Chapter 1](/chapters/RuinsOfExile-01)
