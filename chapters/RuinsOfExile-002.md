@@ -44,7 +44,7 @@ The chatter amongst classmates had stopped.
 The police sirens outside had stopped.  
   
 Sam slowly cranked his head up, fearing he had been caught by the teacher.  
-Before even seeing anything, the window shattered, piercing the silence and causing both Sam and Chris to flinch sharply. A loud crash followed as the metallic blinds collided into the floor.  
+Before he could see anything, the classroom window shattered, piercing the silence and causing both Sam and Chris to flinch sharply. A loud crash followed as the metallic blinds collided into the floor.  
   
 Sam's body was frozen with fear but his heart and mind were pounding. Chris was in a similar state of shock, but his eyes weren't even looking at the window. Instead, he was staring dead straight at the teacher. As Sam shifted his gaze to the center of the classroom where the teacher stood, a flood of emotions and thoughts raced through Sam's mind.
 
